@@ -1,4 +1,4 @@
-#  
+#  Experience hypershot like never before with hypershot smart Script, the #1 Script. Includes esp and infinite resources for unbeatable performance.
 
 
 
